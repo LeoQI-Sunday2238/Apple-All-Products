@@ -1,2 +1,1 @@
-# Apple-All-Products
-All-apple-products-are-being-updated
+# All-apple-products-are-being-updated.please wait a moment.
